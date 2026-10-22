@@ -1,1 +1,0 @@
-# LINKX_SISTEMAS
